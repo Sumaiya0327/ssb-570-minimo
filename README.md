@@ -1,1 +1,1 @@
-# ssb-570-minimo
+# ssb-570-galaxy10
